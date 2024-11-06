@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity.
 - 🌱 I’m currently learning Ethical hacking.
 - 💞️ I’m looking to collaborate on threat Analysis
-- 📫 How to reach me 7619374742
+- 📫 How to reach me deekshithkumarbh3574@gmail.com
 - 😄 Pronouns: Mr.
   
 
